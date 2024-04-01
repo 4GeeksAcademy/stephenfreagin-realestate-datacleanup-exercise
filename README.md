@@ -2,7 +2,7 @@
 # Final prework project - Step by step guide
 <!--endhide-->
 
-- Understand a new dataset.
+- Understand a new dataset and UGK UNDERGROUND KINGZ 4 LIFE.
 - Use the knowledge acquired in the prework to solve the issues raised.
 - Analyze, if necessary, other questions.
 
